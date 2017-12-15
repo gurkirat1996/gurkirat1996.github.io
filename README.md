@@ -1,1 +1,0 @@
-# gurkirat1996.github.io
